@@ -1,6 +1,6 @@
 # Kinder than Man by Althea Davis .
 
-And God
+And God ![image](https://github.com/aevsria/ephemeral/blob/70c88fe4cebac3b491de7c294545d30dc710a3e1/Unknown.png)
 
 please let the deer
 
