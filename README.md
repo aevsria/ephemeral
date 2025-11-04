@@ -1,4 +1,4 @@
-# Kinder than Man by Althea Davis .
+## Kinder than Man by Althea Davis .
 
 And God
 
