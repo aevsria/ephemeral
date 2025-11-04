@@ -1,5 +1,7 @@
 # Kinder than Man by Althea Davis .
 
+![image](https://github.com/aevsria/ephemeral/blob/efd596c88fb3b6f34fa346273587cf6810fa19fa/Unknown.png)
+
 And God
 
 please let the deer
