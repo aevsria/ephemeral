@@ -16,7 +16,7 @@ Let the moths in porch lights
 
 go someplace
 
-with a thousand suns, ![image](https://github.com/aevsria/ephemeral/blob/70c88fe4cebac3b491de7c294545d30dc710a3e1/Unknown.png)
+with a thousand suns,
 
 that taste like sugar 
 
