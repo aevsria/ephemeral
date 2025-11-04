@@ -37,5 +37,3 @@ for simply living,
 let death be kinder
 
 than man.
-
-![image](https://github.com/aevsria/ephemeral/blob/e458c2244ae65f9fb0f576ac6bf074bd91762ce3/Unknown.png)
